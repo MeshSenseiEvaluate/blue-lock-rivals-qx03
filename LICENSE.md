@@ -1,4 +1,4 @@
-# 
+# Experience blue lock rivals like never before with blue lock rivals Scripts automatic, the #1 Script. Includes no clip and instant win for unbeatable
 
 
 
